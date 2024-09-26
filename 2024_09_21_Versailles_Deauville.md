@@ -1,6 +1,6 @@
 ![Arrivée avec Charlie](./photos/2024_09_21_Versailles_Deauville.jpg)
 
-:biking_man: **Versailles -> Deauville** - **255 km, 2500m de d+** :biking_man:
+:biking_man: **Versailles -> Deauville - 255 km, 2500m d+** :biking_man:
 
 Je m'inscris seulement quelques jours avant le départ. J'ai beaucoup hésité parce que je n'ai pas beaucoup roulé cette année et les week-ends précédant la course ont été très festifs, avec notamment le marathon du Médoc et la fête de l'huma (j'ai bu plus d'eau pendant la course que pendant ces deux week-ends réunis). Mais la tentation de participer est trop grande, pour plusieurs raisons :
 - Clémence et Charlie font la course et j'ai très envie de partager ça avec eux.
