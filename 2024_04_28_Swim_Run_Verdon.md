@@ -32,7 +32,6 @@ Le parcours est magnifique et offre des belles vues sur le lac. Nous sommes souv
 
 Après 8h30 d'effort, nous passons la ligne d'arrivée avec beaucoup d'émotions. Puis nous courons à l'appart et nous prenons une douche brûlante, toujours avec nos combis et nos chaussures. C'est un tel bonheur. Je n'ai jamais autant souffert physiquemet et mentalement pendant une course, mais le plaisir d'avoir réussi en est d'autant plus grand. Le lendemain nous sommes dans le dur, mais c'est surtout à cause des festivités qui ont suivi la course.
 
----
-
 :earth_asia: [Site web](https://www.swimrunman.fr/swimrun-gorges-du-verdon/) :earth_asia:
+
 :stopwatch: [Résultats](https://chronoconsult.fr/result/swimrunmangorgesduverdon_2024/#1_BE240F) :stopwatch:
