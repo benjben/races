@@ -35,3 +35,4 @@ Après 8h30 d'effort, nous passons la ligne d'arrivée avec beaucoup d'émotions
 :earth_asia: [Site web](https://www.swimrunman.fr/swimrun-gorges-du-verdon/) :earth_asia:
 
 :stopwatch: [Résultats](https://chronoconsult.fr/result/swimrunmangorgesduverdon_2024/#1_BE240F) :stopwatch:
+

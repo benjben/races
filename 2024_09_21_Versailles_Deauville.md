@@ -1,6 +1,6 @@
 ![Arrivée avec Charlie](./photos/2024_09_21_Versailles_Deauville.jpg)
 
-:biking_man: **Versailles -> Deauville - 255 km, 2500m d+** :biking_man:
+:biking_man: **Versailles -> Deauville - 255 km, 2500m D+** :biking_man:
 
 Je m'inscris seulement quelques jours avant le départ. J'ai beaucoup hésité parce que je n'ai pas beaucoup roulé cette année et les week-ends précédant la course ont été très festifs, avec notamment le marathon du Médoc et la fête de l'huma (j'ai bu plus d'eau pendant la course que pendant ces deux week-ends réunis). Mais la tentation de participer est trop grande, pour plusieurs raisons :
 - Clémence et Charlie font la course et j'ai très envie de partager ça avec eux.
@@ -35,3 +35,8 @@ Lorsque l'on repart du ravito du kilomètre 200, grosse joie : plus que 55 kilom
 Nous franchissons la ligne d'arrivée après 9h22 d'effort (dont une heure d'arrêt au total).
 
 Un grand bravo à Charlie pour avoir roulé 130 kilomètres avec un pneu gonflé à 3 bars, c'est vraiment une machine. Et un grand bravo à Clémence pour être allée au bout malgré sa chute, trop fier de ma petite soeur !
+
+:earth_asia: [Site web](https://versaillesdeauville.com/) :earth_asia:
+
+:stopwatch: [Résultats](https://live.breizhchrono.com/external/live5/index.jsp?reference=1488071608761-634) :stopwatch:
+
