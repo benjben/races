@@ -1,3 +1,5 @@
+![Section natation](./photos/2024_04_28_Swim_Run_Verdon.jpg)
+
 :cold_face: **Ultra Swim Run Gorges du Verdon** :cold_face:
 
 Le swim run est un épreuve au cours de laquelle on alterne course à pieds et natation, sans jamais se changer. On nage donc avec ses chaussures et on court avec sa combinaison néoprène, avec les chaussures mouillées. C'est une course qui se fait en duo (on doit rester côte à côte du début à la fin), et j'ai eu le privilège d'avoir un binôme de choc : Toto la machine (Tomas Tessier).
