@@ -1,9 +1,7 @@
-# Debriefs
-
 ## 2024
 
-- 28 Avril : [Ultra Swim Run Gorges du Verdon](./)
-- 21 Septembre : [Cyclo 255 km Versailles Deauville](./2024-09-21_Versailles_Deauville.md)
+- 28 Avril : [Ultra Swim Run Gorges du Verdon](./2024_04_28_Swim_Run_Verdon.md)
+- 21 Septembre : [Cyclo 255 km Versailles Deauville](./2024_09_21_Versailles_Deauville.md)
 
 ## 2023
 
