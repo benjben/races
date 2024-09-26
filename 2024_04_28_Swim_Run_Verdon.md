@@ -31,3 +31,8 @@ Toto donne le rythme, c'est le moteur de l'équipe, il est toujours devant et ne
 Le parcours est magnifique et offre des belles vues sur le lac. Nous sommes souvent de longues périodes sans croiser personne, c'est une course on ne peut plus nature. Nous nous rapprochons des dernières grosses portions de natation : 1 kilomètre de natation, 4 km de course puis à nouveau 900 mètres de natation. Ça commence à être très difficile de se réchauffer car le corps est bien fatigué. Entre ces 2 natations je tremble de tout mon corps et au ravitaillement j'alterne boire un verre de thé et m'en mettre un dans la figure. Le bénévole nous informe gentiment qu'il y en a qui tremblent encore plus que nous. Pour la première fois pendant une course je sens que je ne suis pas loin de pleurer, les nerfs sont mis à rude épreuve. Mais je suis déterminé, d'autant plus que la fin de la course se rapproche. La dernière natation est interminable, je suis gelé, j'ai du mal à avancer, mais c'est la dernière, il faut débrancher le cerveau et tenir.
 
 Après 8h30 d'effort, nous passons la ligne d'arrivée avec beaucoup d'émotions. Puis nous courons à l'appart et nous prenons une douche brûlante, toujours avec nos combis et nos chaussures. C'est un tel bonheur. Je n'ai jamais autant souffert physiquemet et mentalement pendant une course, mais le plaisir d'avoir réussi en est d'autant plus grand. Le lendemain nous sommes dans le dur, mais c'est surtout à cause des festivités qui ont suivi la course.
+
+---
+
+:earth_asia: [Site web](https://www.swimrunman.fr/swimrun-gorges-du-verdon/) :earth_asia:
+:stopwatch: [Résultats](https://chronoconsult.fr/result/swimrunmangorgesduverdon_2024/#1_BE240F) :stopwatch:
