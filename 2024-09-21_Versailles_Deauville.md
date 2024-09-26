@@ -1,4 +1,4 @@
-  ![Arrivée avec Charlie](./photos/2024-09-21_Versailles_Deauville.md)
+  ![Arrivée avec Charlie](./photos/2024-09-21_Versailles_Deauville.jpg)
 
 :biking_man: **Versailles -> Deauville** - **255 km, 2500m de d+** :biking_man:
 
